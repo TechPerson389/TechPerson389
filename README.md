@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @TechPerson389
+- 👀 I’m interested in tech and videogames
+- 🌱 I’m currently learning nothing at the moment
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me: Email: aboynamedbug@gmail.com
